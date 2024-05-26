@@ -1,0 +1,15 @@
+The latest episode of Kill Tony was a rollercoaster of comedic moments, panelist interactions, and unexpected surprises. Hosted by Tony, the show kicked off with the typical high-energy introduction and the band playing some great tunes. The first comedian up was Casey Rocket, who delivered a unique set about his bizarre diet and nostalgic TV show references. His jokes about eating plastic babies and his impression of a '90s cartoon character had the audience in stitches. Tony and the panelists, including Daniel Van Kirk, praised Casey for his wild and unpredictable humor.
+
+Next up was Joseph Kirimi, who entertained the crowd with jokes about his ambiguous ethnicity and OnlyFans past. His observational humor and witty one-liners about his girlfriend's OnlyFans content were well-received, with the audience and panelists laughing along. Daniel Van Kirk even offered some constructive feedback to help tighten Joseph's set, showcasing the supportive nature of the show.
+
+Maddie G returned to the stage for the second time, sharing more about his life, including his unique living situation in a hammock. His set touched on selling guns and making racially charged jokes, which received mixed reactions. The panelists, while entertained, suggested Maddie work on his delivery and material.
+
+Isaac Kane Brown, a Marine Corps veteran, took the stage next and delivered a set that mixed dark humor with personal anecdotes. His jokes about growing up with a brother with Asperger's and his experiences in the military were met with laughs and some raised eyebrows. Tony and the panelists delved into Isaac's life, revealing more about his unique situation of having a sugar mama.
+
+The show continued with regulars like Cam Patterson, who delivered a hilarious set about Drake following his girl on Instagram, and Martin Phillips, a Golden Ticket winner, who once again impressed with his clever jokes and strong stage presence. Martin's ability to consistently deliver solid performances was highlighted, and Tony shared a story about Martin stepping in last minute for a show and absolutely killing it.
+
+The audience was also treated to an impromptu performance by a charismatic audience member from Trinidad and Tobago named John, who shared his experiences and charmed everyone with his confidence and storytelling.
+
+The night wrapped up with the legendary William Montgomery, who brought his unique blend of absurdity and sharp humor, including jokes about OJ Simpson, Joe Biden, and Reading Rainbow. William's performance was a fitting end to a night filled with laughter, surprises, and unforgettable moments.
+
+Overall, the episode showcased the diverse talents of rising comedians, the supportive and humorous interactions of the panelists, and the electric energy of the Kill Tony audience.
