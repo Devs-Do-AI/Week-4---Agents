@@ -1,0 +1,4 @@
+OPENAI_API_KEY=# your openai api key
+GOOGLE_API_KEY=# your google api key
+SERPER_API_KEY=# your serper api key
+OPENAI_MODEL_NAME=gpt-3.5-turbo # preferred model 
